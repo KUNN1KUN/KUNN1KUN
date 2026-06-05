@@ -1,10 +1,17 @@
-![1000070301](https://github.com/user-attachments/assets/d4f3e8e5-207f-41f9-b2ea-43b6fb66caf7)
-![1000070300](https://github.com/user-attachments/assets/a626b7be-ce86-4a30-a9c0-be243a784c71)
-                                       
-                                       
-                                       কਇরㅤDõcęㅤ⎯⎯Vęrąõ,,ㅤ&ꞌㅤII.
-<img width="61" height="18" alt="1000070307" src="https://github.com/user-attachments/assets/66dde367-8f91-43b2-9052-3f45bbd50fe9" />
+<img width="1280" height="331" alt="1000079635" src="https://github.com/user-attachments/assets/7bed2648-2261-4c53-a79e-b78aedb84818" />
 
-                                     
-![1000070301](https://github.com/user-attachments/assets/eece3275-9333-441e-a06f-fdd4de28793f)
-                                       
+
+![1000079692](https://github.com/user-attachments/assets/8ece0e8e-91d1-4f94-b0f0-2ba10fc52d5e)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ𖧧🌺⃟ㅤㅤWh:ꬺᩙsy ㅤ──Tw꯭᪲ꬴyㅤ**
+D꩜t-dɔts, ㅤ Sh᷼iꬻin͡g likeㅤ(太陽ी) 
+ㅤㅤㅤWith L৾vᧉ, ㅤkun ㅤ──Wi͠ll be y𔘓꯭ur ㅤ‘ㅤSⅇrvic͚ᩘəㅤㅤ𓊆﹫あなたの日!!๑..*🐑ᩚ𓊇
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+
+![1000079638](https://github.com/user-attachments/assets/7fddc416-56e4-4510-a96f-d5193fd8d2d6)
+
+
