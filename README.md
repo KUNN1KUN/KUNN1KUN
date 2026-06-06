@@ -1,4 +1,5 @@
-<img width="1280" height="331" alt="1000079635" src="https://github.com/user-attachments/assets/7bed2648-2261-4c53-a79e-b78aedb84818" />
+<img width="1280" height="331" alt="1000079984" src="https://github.com/user-attachments/assets/323b48bd-83d6-46fa-92c2-ea18e71ae3c1" />
+
 
 
 ![1000079692](https://github.com/user-attachments/assets/8ece0e8e-91d1-4f94-b0f0-2ba10fc52d5e)
@@ -12,6 +13,7 @@ D꩜t-dɔts, ㅤ Sh᷼iꬻin͡g likeㅤ(太陽ी)
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 
-![1000079638](https://github.com/user-attachments/assets/7fddc416-56e4-4510-a96f-d5193fd8d2d6)
+<img width="1280" height="331" alt="1000079982" src="https://github.com/user-attachments/assets/7e7be7d0-4b24-4611-bf7e-a2cd945c3c1d" />
+
 
 
