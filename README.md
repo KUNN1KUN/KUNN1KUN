@@ -3,11 +3,7 @@
 
 
 
-ㅤ
-ㅤㅤㅤㅤ𒋲 ﹒ 𝕰ƞvɘlᦅped in 𝖘had꯭ᦅws aƞd bo͜υnd by thฺฺฺe 𝕾ile꯭nce of 𝕮e͜ntu͠rieִs. 𒌌 ࣭  𓆪
-
-ㅤ                               ( ♱ )
-
-ㅤㅤ     ⟆ ͜͡ 𖥠 ͜͡ ⟆ ۫  𝕷ฺฺฺeft tᦅ 𝕯ec͜ay in α 𝖛𝖔꯭𝖎𝖉ㅤㅤ𝕸e͜ꮪꭑerιzing ⎯⎯aƞ͜d 𝖘tιׅll  ﹒   
-ㅤㅤㅤㅤㅤㅤㅤㅤ𒉽𒉌 𝕿ฺฺฺฺฺhe 𝕯꯭꯭꯭꯭꯭ҽʋιʅ' knᦅws ꭑy nꭤ͟mׄɘ⎯b͜υt the 𝖑𝖎꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭꯭۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫۫ᧁׁ𝖍𝖙 dᦅes n࣭࣭ᦅt.   
+ㅤ    ୭݂୭͢͡ ͡៹  Oh poor little 𝘀𝗼𝘂𝗹.. Wandering here and there.. Without a specific purpose.   ㅤㅤ༤  ﹙ 𑁯 ࣭  〨  ࣭ ᰍ ﹚  ༡ㅤㅤㅤ you must be confused, 𝘄𝗵𝗲𝗿𝗲 are you, and 𝘄𝗵𝗮𝘁 are you. 
+ㅤㅤㅤㅤ ៸៸  ࣭  ︖ㅤ do you even know 𝘄𝗵꯭꯭꯭꯭𝗲𝗿𝗲 you belong at? ㅤㅤ𐔌ʚɞ ]ㅤㅤ Tragic, huh.
+    ꒰࣭꒰   ༗༘   ͵͵ Or maybe, you 𝗱𝗼꯭𝗻'𝘁 belong anywhere. ㅤㅤㅤㅤㅤYou're just a 𝗹𝗼𝘀𝘁 ︪𝘀𝗼𝘂𝗹.  ۪  𝆢  ࣪࣪࣪  ꧖ꦾ
 ㅤ
